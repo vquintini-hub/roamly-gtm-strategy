@@ -38,3 +38,4 @@ Roamly Groups is one booking that holds the whole group for a food tour, cooking
 
 ## Final Positioning Statement
 > Roamly Groups is one booking that holds the whole group for a food tour, cooking class or guided hike. Everyone joins and pays their share as they join, so the organiser never fronts the cost or chases the group, and nobody drops out at the last minute.
+> Roamly Groups is one booking that holds the whole group for a food tour, cooking class or guided hike. Everyone joins and pays their own share as they join, so the organiser never fronts thousands on a personal card or chases anyone for it.
